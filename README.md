@@ -1,0 +1,2 @@
+# AaykarSathi
+privacy policy
